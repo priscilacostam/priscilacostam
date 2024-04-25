@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Priscila Costa Moreira 😁
+## Bem-vindo(a) ao perfil da Priscila Costa Moreira 😁
 
  <div>
    <a href="https://github.com/priscilacostam">
